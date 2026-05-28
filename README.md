@@ -19,7 +19,7 @@ Yaptığım her türlü hatadan Allah’a ve yalnızca Allah’a sığınırım.
 
 ## Kapsam – Bu yazı ne hakkında/değil
 
-Kuran-ı Kerim’i okuma, dua etme, şifalanma, dilekleme üzerine önerilerde bulunan incelemeci ve yorumcuların bazılarından ( birden fazla ) duydum ki –
+Kuran-ı Kerim’i okuma, dua etme, şifalanma, dilekleme üzerine önerilerde bulunan incelemeci ve yorumcuların bazılarından (birden fazla) duydum ki –
 
 Ala Suresi’nin 6 ve 8. ayetlerini okumak öğrenmeyi kolaylaştırır ve hafızayı güçlendirir. 6 ve 8 – 6-8 değil. 7. ayeti "de okusanız olur." Ama, 6 ve 8 okunacak – esas olan bu. Bizim merak ettiğimiz, kulağımızı tırmalayan da bu – neden aradaki 7. ayet aradan çekilip alınıyor "cımbızla çıkarılmış" gibi.
 
@@ -37,7 +37,7 @@ Ala Suresi (87. Sure) 6-8. ayetlerinin Türkçe okunuşu ve anlamı şöyle – 
 Bu yazi, şunlar hakkinda degil: 
 
 A) Bu bilginin doğruluğunu, yani, Ala: 6-8’i veya Ala: 6 ve 8’i okumanın zihni güçlendirip güçlendirmediğini tartışmak değil.  
-<ul>Ama yine de ek not olarak – bu bilginin hangi kaynaktan oldugunu bilmemekle birlikte, bu bilginin dogru olabilecegine, yani bu ayetleri okumanin ogrenmeyi kolaylastirabilecegine kaniyim. 7. ayetin atlanip 6 ve 8’in okunmasina gonlum elvermez – dolayisiyla Ala: 6 ve 8’in okunmasi benim icin kapsam disi. Ama, Ala: 6, 7 ve 8’in okunmasinin, kisiyi bilgiyi almaya yakinlastirdigina inanirim. 5. Kisim, bu dediklerimi daha da acacak Ama yine de ek not olarak – bu bilginin hangi kaynaktan olduğunu bilmemekle birlikte, bu bilginin doğru olabileceğine, yani bu ayetleri okumanın öğrenmeyi kolaylaştırabileceğine kaniyim. 7. ayetin atlanıp 6 ve 8’in okunmasına gönlüm elvermez – dolayısıyla Ala: 6 ve 8’in okunması benim için kapsam dışı. Ama, Ala: 6, 7 ve 8’in okunmasının, kişiyi bilgiyi almaya yakınlaştırdığına inanırım. Yazının devamı, bu dediklerimi daha da açacak. </ul>
+<ul>Ama yine de ek not olarak – bu bilginin hangi kaynaktan olduğunu bilmemekle birlikte, bu bilginin doğru olabileceğine, yani bu ayetleri okumanın öğrenmeyi kolaylaştırabileceğine kaniyim. 7. ayetin atlanıp 6 ve 8’in okunmasına gönlüm elvermez – dolayısıyla Ala: 6 ve 8’in okunması benim için kapsam dışı. Ama, Ala: 6, 7 ve 8’in okunmasının, kişiyi bilgiyi almaya yakınlaştırdığına inanırım. Yazının devamı, bu dediklerimi daha da açacak. </ul>
 
 B) Bu bilgiyi verenleri, yani, Ala: 7’yi atlayarak Ala: 6 ve 8’i okumayı önerenleri eleştirmek değil. 
 <ul> Aksine – bu bilgiyi verenlerden özellikle birinin (birden fazlalar) içtenliğine, art-niyetsiz samimiliğine kaniyim.</ul>
