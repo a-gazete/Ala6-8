@@ -1,4 +1,4 @@
-# Ala: 6-8 Bağlamında Kur'an'ı Okuma Üzerine Bazı Notlar.
+# Ala: 6-8 Bağlamında Kur'an'ı Okuma Üzerine Bazı Notlar
 
 Bu yazı Kuran-ı Kerim’deki sure ve ayetlerle ilgili verilen tavsiyelerden biriyle ilgili gözümüze çarpan birşey hakkındadır. Ama ilkin.. 
 
