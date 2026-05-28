@@ -92,15 +92,15 @@ Yıllar önce YouTube’da bir kabala dersi görmüştüm yaklaşık 40 saattlik
 
 E şimdi, bu sapmalar (bunlar, bana göre çok büyük bir çarpıklıktır) bu kimselere birden bire mi gelip yerleşti yoksa böyle küçük küçük, aralardan derelerden, yanlış/minik, “hoşgörülmüş”, “masum”, gözardı edilmiş hatalarla aşama aşama, nesillere/zamana yayılarak mı yerleşti?
 
-“Allah’tan yardım garantisi” diyen var – şu kadar okunursa mutlaka olacağını söyleyen, Allah adına garanti veren.
+"Allah’tan yardım garantisi" diyen var – şu kadar okunursa mutlaka olacağını söyleyen, Allah adına garanti veren.
 
-“Yukarıdan aşağıya inen ayetler” diye bir tarif var – bizim isteğimizi dillendirmek değil de (onlar aşağıdan yukarı (?)) Allah’in bahşetmiş olduğu şeyleri anlatan, ve dolayısıyla şimdi de bahşedeceği şeyleri anlatan (?) tarzda olan ayetler – bir vaat gibi yani. Allah nasıl oldurduğunu, olduracağını vaat etmiş, biz de haşa Allah’i bu vaadinden sorumlu tutuyoruz, alacağımızı tahsil ediyoruz gibi.
+"Yukarıdan aşağıya inen ayetler" diye bir tarif var – bizim isteğimizi dillendirmek değil de (onlar aşağıdan yukarı (?)) Allah’in bahşetmiş olduğu şeyleri anlatan, ve dolayısıyla şimdi de bahşedeceği şeyleri anlatan (?) tarzda olan ayetler – bir vaat gibi yani. Allah nasıl oldurduğunu, olduracağını vaat etmiş, biz de haşa Allah'ı bu vaadinden sorumlu tutuyoruz, alacağımızı tahsil ediyoruz gibi.
 
-Ala:7 tam da bunun için değil mi? Allah demiyor mu ki yine de en son taktir ondadır – olup olmayacağının öyle otomatik garantisi yok. Hakk, büyük/herşeyi-kapsayan ve mutlak gerçekler bütünü değil mi? Hakk’i tümden görebilmek insan algısına sığmış mı hiçbir zaman? Allah onu demiyor mu Ala:7’de – hakk’i gören O, ve taktir O’nun. E o zaman, Ala:7’yi aradan çıkarmak, bu bildirimi kaldırıp bir kenara koymak niye ?
+Ala:7 tam da bunun için değil mi? Allah demiyor mu ki yine de en son taktir ondadır – olup olmayacağının öyle otomatik garantisi yok. Hakk, büyük/herşeyi-kapsayan ve mutlak olan gerçekler bütünü değil mi? Hakk'ı tümden görebilmek insan algısına sığmış mı hiçbir zaman? Allah onu demiyor mu Ala:7’de – Hakk'ı gören O, ve taktir O'nun. E o zaman, Ala:7'yi aradan çıkarmak, bu bildirimi kaldırıp bir kenara koymak niye ?
 
 Kaldı ki – her istediğinizin olmasını ister miydiniz? Midas’in "her tuttuğum altın olsun" duasındaki gibi.
 
-Eğer Allah'ın garantisini arıyorsanız – herşeyin geri/bütün planını bilen Allah’in bütün olacakları gözetmesini istemez miydiniz – Ala:7’de vahyettiği gibi – bundan daha iyi garanti olur mu?
+Eğer Allah'ın garantisini arıyorsanız – herşeyin geri/bütün planını bilen Allah’ın bütün olacakları gözetmesini istemez miydiniz – Ala:7’de vahyettiği gibi – bundan daha iyi garanti olur mu?
 
 Bazı söyleniş tarzları, gençlerin, dijital/elektronik şeyleri seven, onlarla oyuncak gibi ilgilenen yeni neslin algılarına daha direk hitap edebilir. Ama diğer taraftan, inancı henüz olgunlaşmamış birinin dimağında yanlış şeyler çağrıştırabilir.
 
