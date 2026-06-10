@@ -75,7 +75,7 @@ Bizi sınırlayan sadece kendimiziz.
        
 Farkındalıklarımızla, o kader yolunu yürüyebilirliğimizle sınırlıyız. Şu anki dileğimizin belki kaç kere yanından geçtik, haberimiz bile olmadı. Ya da oldu belki, ama uzanıp almak içimizden gelmedi, almaya değer görünmedi. Ya da şüpheye düştük, almak istemedik– başka şeyler daha öncelikli geldi. Ya da aldık, ama tutmak içimizden gelmedi.
 
-Hatta en güzel bir dua şekli bu belki. İstediğinizin olması için ".. ver" yerine ".. algılayıp ayırdedebilmeme, nasıl çalışacağımı görmeme, bu yolu yürüyüp erişebilmeme yardımcı ol."
+Hatta en güzel bir dua şekli bu belki. İstediğinizin olması için ".. ver" yerine ".. algılayıp ayırdedebilmeme, nasıl çalışacağımı görmeme, bu yolu yürüyüp erişebilmeme, kendimi bu yönde geliştirebilmeme yardımcı ol."
 
 Allah, seçimlerimizi bize bırakıyor. İrade sahibi tek yaratığız.
 
