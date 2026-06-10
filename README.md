@@ -69,8 +69,9 @@ Allah’ı yaklaştırmak ne demek ki zaten!??
 
 Allah zaten her yerde, ve herşeyi biliyor. Daha neyi bildireceğiz? Bilmiyor da haberdar mı edeceğiz? Duayla kendimiz hatırlatıp bize karşı merhametini, bereketini mi artıracağız – dikkatine sunup ikna mı edeceğiz? Böyle birşey olabilir mi!? Allah’ı nereye, neye yaklaştıracaksınız??
 
+Dua, kendini dileğine yaklaştırmaktır. Algılarını, görebilirliğini, alabilirliğini açıp geliştirmektir. Gönlünün isteğini farkedebilir, görüp ayırdedebilir, alabilir ve içselleştirebilir hale gelmek içindir. Dua Allah’a isteğinizi yaptırmak değildir. Onun bereketi ve merhameti sonsuz zaten – sonsuzun ötesine geçilemez. Ve de, her an her şeyi verebilir. Sonsuz bu demek.
 
-Dua, kendini dileğine yaklaştırmaktır. Algılarını, görebilirliğini, alabilirliğini açıp geliştirmektir. Gönlünün isteğini farkedebilir, görüp ayırdedebilir, alabilir ve içselleştirebilir hale gelmek içindir. Dua Allah’a isteğinizi yaptırmak değildir. O'nun bereketi ve merhameti sonsuz zaten – her an herşeyi verebilir. Bizi sınırlayan sadece kendimiziz.
+Bizi sınırlayan sadece kendimiziz.
        
 Farkındalıklarımızla, o kader yolunu yürüyebilirliğimizle sınırlıyız. Şu anki dileğimizin belki kaç kere yanından geçtik, haberimiz bile olmadı. Ya da oldu belki, ama uzanıp almak içimizden gelmedi, almaya değer görünmedi. Ya da şüpheye düştük, almak istemedik– başka şeyler daha öncelikli geldi. Ya da aldık, ama tutmak içimizden gelmedi.
 
