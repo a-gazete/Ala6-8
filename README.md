@@ -9,7 +9,7 @@ Gelgelelim, inanmış müslümanım. Müslümanlığını, hem yaş hem de yaşa
 
 İnancımla ilgili duyumsamalarımdan, algılarımdan belli şekilde eminim. O yüzden yazıyorum zaten – gözüme/gönlüme çarpan ve önemli gördüğüm birşeyi paylaşmak için.
 
-Bununla birlikte – boyle onemli ve hassas bir konuda yazıyorum. Son derece dikkatle, "tek tek basarak". Ama, hata yapmamak ne haddime!
+Bununla birlikte – böyle onemli ve hassas bir konuda yazıyorum. Son derece dikkatle, "tek tek basarak". Ama, hata yapmamak ne haddime!
 
 Bu yazıda yapabileceğim en doğru ve kesin öneri şu: Bu yazıyı, hele böyle bir konuda yazılmış bir yazıyı mutlaka ve mutlaka kendi akıl ve gönül süzgecinizden geçirerek okuyun. Ve bu süzgeçten geçmeyenleri almayın.
 
@@ -57,7 +57,7 @@ Herşeyden önce – Kuran’in bir devamlılık, bütünlülük, anlamda sürek
 
 Ala:6 ve 8 zihin açıklığına faydalıyken aradaki Ala:7 haşa alakasız, lüzumsuz mu, Yaratan, niye koymuş Ala:7’yi Ala:6 ve Ala:8’in arasına?
 
-Üstelik de aradaki ayet, herşeyin Allah’in taktirine bağlı olduğunu, herşeyi bir bütün olarak gören ve bilen Allah'ın belki de böyle bir kolaylık sağlamayacağını söylemiyor mu?
+Üstelik de aradaki ayet, herşeyin Allah’ın taktirine bağlı olduğunu, herşeyi bir bütün olarak gören ve bilen Allah'ın belki de böyle bir kolaylık sağlamayacağını söylemiyor mu?
 
 Ala:7’yi okumayınca bu unsuru aradan çıkarmış mı olacağız? "İlla olsun, Allah’ım ne olur ver öyle ya da böyle" filan mı diyoruz? Ya da belki "bu istediğimi bi ver, ötesini boşver, düşünürüz" filan mı?
 
@@ -88,14 +88,14 @@ Ve de, doğru, hayırlı, helal bir yoldur bu.
 
 ## Yan yollar da var.. ve Sonuç
 
-Yıllar önce YouTube’da bir kabala dersi görmüştüm yaklaşık 40 saattlik. Nasıl birşey diye şöyle bir baktım. Daha 2. saat dolmadan " .. burada Allah’in zayıflığı var.. bize karşı şefkatli merhametli .. bunu kullanıp istediğimizi alacağız .. " filan demeye başladı.
+Yıllar önce YouTube’da bir kabala dersi görmüştüm yaklaşık 40 saatlik. Nasıl birşey diye şöyle bir baktım. Daha 2. saat dolmadan " .. burada Allah’ın zayıflığı var.. bize karşı şefkatli merhametli .. bunu kullanıp istediğimizi alacağız .. " filan demeye başladı.
 
 
 E şimdi, bu sapmalar (bunlar, bana göre çok büyük bir çarpıklıktır) bu kimselere birden bire mi gelip yerleşti yoksa böyle küçük küçük, aralardan derelerden, yanlış/minik, "hoşgörülmüş", "masum", gözardı edilmiş hatalarla aşama aşama, nesillere/zamana yayılarak mı yerleşti?
 
 "Allah’tan yardım garantisi" diyen var – şu kadar okunursa mutlaka olacağını söyleyen, Allah adına garanti veren.
 
-"Yukarıdan aşağıya inen ayetler" diye bir tarif var – bizim isteğimizi dillendirmek değil de (onlar aşağıdan yukarı (?)) Allah’in bahşetmiş olduğu şeyleri anlatan, ve dolayısıyla şimdi de bahşedeceği şeyleri anlatan (?) tarzda olan ayetler – bir vaat gibi yani. Allah nasıl oldurduğunu, olduracağını vaat etmiş, biz de haşa Allah'ı bu vaadinden sorumlu tutuyoruz, alacağımızı tahsil ediyoruz gibi.
+"Yukarıdan aşağıya inen ayetler" diye bir tarif var – bizim isteğimizi dillendirmek değil de (onlar aşağıdan yukarı (?)) Allah’ın bahşetmiş olduğu şeyleri anlatan, ve dolayısıyla şimdi de bahşedeceği şeyleri anlatan (?) tarzda olan ayetler – bir vaat gibi yani. Allah nasıl oldurduğunu, olduracağını vaat etmiş, biz de haşa Allah'ı bu vaadinden sorumlu tutuyoruz, alacağımızı tahsil ediyoruz gibi.
 
 Ala:7 tam da bunun için değil mi? Allah demiyor mu ki yine de en son taktir ondadır – olup olmayacağının öyle otomatik garantisi yok. Hakk, büyük, herşeyi-kapsayan ve mutlak olan gerçekler bütünü değil mi? Hakk'ı tümden görebilmek insan algısına sığmış mı hiçbir zaman? Allah onu demiyor mu Ala:7’de – Hakk'ı gören O, ve taktir O'nun. E o zaman, Ala:7'yi aradan çıkarmak, bu bildirimi kaldırıp bir kenara koymak niye ?
 
